@@ -1,4 +1,4 @@
-# Verhaal
+# Het Verhaal van de Straw Hat Pirates
 
 Het verhaal begint in het East Blue-gebied, waar Luffy zijn reis start.  
 Tijdens zijn avontuur verzamelt hij een unieke bemanning met elk hun eigen dromen.  
